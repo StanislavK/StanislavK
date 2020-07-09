@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 - having delicious five star food 🍲 for code with fine people at well known top 100 world company. 
 
 <!--
 **StanislavK/StanislavK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
