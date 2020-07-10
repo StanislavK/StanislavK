@@ -1,5 +1,3 @@
-### Hi there 👋 - having delicious five star food 🍲 for code with fine people at well known top 100 world company. 
-
 <div align="center">
 	<br>
 	<br>
